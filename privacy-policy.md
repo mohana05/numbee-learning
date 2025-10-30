@@ -29,4 +29,4 @@ Last updated: 2025-10-30
 - How we’ll notify updates
 
 ## Contact
-- Email: support@yourdomain.com
+- Email: mrrmfamily2022@gmail.com
